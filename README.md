@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI and Data
 - 🌱 I’m currently learning computer science 
 - 💞️ I’m looking to collaborate as partner or organisation 
-- 📫 How to reach me Jhonsingh.com@jhonsingh59.com---www.LinkedIN.com/Quintonmeitei
+- 📫 How to reach me GitHub.com/NQuintonSingh
 - 😄 Pronouns: He
 - ⚡ Fun fact: love to explore new things with AI
 
